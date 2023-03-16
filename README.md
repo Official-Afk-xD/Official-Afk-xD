@@ -1,4 +1,4 @@
-<img src='https://telegra.ph/file/e91b549d9002d66366bae.jpg' alternate="Meow Meow... Your Internet Gones..." height="250px">
+<img src='https://telegra.ph/file/58c2c310374fb71be9ed8.jpg' alternate="Meow Meow... Your Internet Gones..." height="250px">
 
 
 - 👋 𝐻𝑖, 𝐼’𝑚 @𝑂𝑓𝑓𝑖𝑐𝑖𝑎𝑙-𝐴𝑓𝑘-𝑥𝐷
